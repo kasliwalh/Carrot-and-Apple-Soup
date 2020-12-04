@@ -1,0 +1,4 @@
+In Dutch oven or large pan, heat canola oil over medium-high heat until hot. Add the onion and leek and sauté for about 4 minutes, until the onion is translucent.
+Mix in carrots and apple. Reduce heat to medium-low, cover, and cook for 5 minutes, stirring often.
+Add broth, cover, and bring to a boil over high heat. Then reduce heat to low and simmer for about 30 minutes, until carrots are soft. Remove pot from heat and set soup aside to cool slightly.
+In a blender or food processor, puree soup in batches until smooth. Return soup to pan and heat before serving. If soup is too thick, add more broth, as desired. Season to taste with salt and pepper. Serve immediately, garnishing each serving with mint.x
